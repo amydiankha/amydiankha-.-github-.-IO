@@ -1,1 +1,1 @@
-# amydiankha-.-github-.-IO
+# amydiankha.github.iO
